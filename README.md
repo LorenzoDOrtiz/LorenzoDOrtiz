@@ -1,5 +1,5 @@
 # 💫 About Me:
-👨‍💻 Software Engeneering Student<br>⚡ Open To New Opportunities<br>🌎 https://lorenzodortiz.com <br>
+👨‍💻 Software Engeneer<br>⚡🌎 https://lorenzodortiz.com <br>
 
 
 ## 🌐 Socials:
