@@ -1,5 +1,5 @@
 # 💫 About Me:
-👨‍💻 Software Engeneer<br>⚡🌎 https://lorenzodortiz.com <br>
+👨‍💻 Software Engeneer<br>🌎 https://lorenzodortiz.com <br>
 
 
 ## 🌐 Socials:
