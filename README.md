@@ -1,4 +1,3 @@
-# 💫 About Me:
 👨‍💻 Software Engineer with a passion for getting shit done
 <br>
 
