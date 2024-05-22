@@ -1,4 +1,4 @@
-👨‍💻 Software Engineer with a passion for getting shit done
+👨‍💻 Software Engineer 
 <br>
 
 🌎 https://lorenzodortiz.com 
